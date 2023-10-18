@@ -20,7 +20,3 @@ Soy una profesional apasionada y versátil en diseño, con formación en diseño
 [![](https://visitcount.itsvg.in/api?id=brendanovoa&icon=0&color=1)](https://visitcount.itsvg.in)
 
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
----
-[![](https://visitcount.itsvg.in/api?id=brendanovoa&icon=0&color=1)](https://visitcount.itsvg.in)
-
-<!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
